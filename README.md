@@ -1,1 +1,0 @@
-# Tbscom-activate.github.io
